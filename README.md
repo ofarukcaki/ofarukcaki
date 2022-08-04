@@ -1,3 +1,5 @@
+### Looking for Blockchain(web3, solidity) related jobs, can relocate anywhere. If you are looking for a super talented software engineer it's me, for my up to date resume please contact through email.
+---
 ### Hi there 👋
 
 <!--
